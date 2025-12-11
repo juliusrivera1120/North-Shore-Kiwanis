@@ -1,1 +1,1 @@
-# Pal-O-Mine
+# North Shore Kiwanis
